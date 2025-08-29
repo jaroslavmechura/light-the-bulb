@@ -57,7 +57,7 @@ I worked on almost every aspect of the game except background music:
 
 Tutorial Levels - [https://youtu.be/EYwGWRo3BJw]
 
-Normal Levels - [https://youtu.be/yrXJghZ3A5U]
+Normal Levels - [https://youtu.be/-1fZn31rMbs]
 
 
 ---
